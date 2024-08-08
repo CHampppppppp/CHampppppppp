@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CHampppppppp
+- 👋 Hi, I’m @CHamp
 - 👀 I’m interested in coding and gaming 
 - 🌱 I’m currently learning c++ and general education , etc
 - 💞️ I’m looking to collaborate on developing little games
