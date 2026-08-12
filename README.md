@@ -1,5 +1,5 @@
 - 👋 Hi, 我是 @CHampppppppp
-- If your looking for 18+, nothing here. sorry.
+- 🔞 If your looking for 18+, nothing here. sorry.
 - 👀 我对coding、gaming、motorcycle感兴趣
 - 🌱 我的目标是成为全栈码农，正在路上。
 - 💞️ 我在寻找志同道合的小伙伴，一起快乐码字，共同进步！
